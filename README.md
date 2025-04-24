@@ -1,0 +1,1 @@
+# Aisha_2306015_Sistem_Pakar-Certainty_Factor_dan_Fuzzy_Logic-
